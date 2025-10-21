@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ Mangbiang Eide
-- 👀 I’m a aspiring safety personnel 
+- 👀 An aspiring safety, environment and food safety personnel 
 - 🌱 I’m currently working as HSEQ Supervisor with Kainantu Support Services Limited, K92 Gold Mine
 - 💞️ I’m looking open to work with aspiring/experienced safety personnels
 - 📫 How to reach me ...
