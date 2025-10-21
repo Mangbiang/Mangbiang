@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ Mangbiang Eide
 - 👀 I’m a aspiring safety personnel 
-- 🌱 I’m currently working as a Site Safety Lead at NCS K92 Gold Mine
+- 🌱 I’m currently working as HSEQ Supervisor with Kainantu Support Services Ltd, K92 Gold Mine
 - 💞️ I’m looking open to work with aspiring/experienced safety personnels
 - 📫 How to reach me ...
 
